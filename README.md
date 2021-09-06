@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Kirti812
+- 👀 I’m interested in learning new development tools.
+- 🌱 I’m currently pursuing B.Tech in Computer Science.
+- 📫 You can shoot me a email on kirtiagg4217@gmail.com
+- Self taught budding software developer 
+- The generation of Us, The generation of Internet
